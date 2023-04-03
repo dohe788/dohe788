@@ -1,2 +1,1 @@
 
-- 🔭 I’m gay developer
